@@ -1,6 +1,6 @@
 # 💫 About Me:
 Soy una chica muy creativa, me gusta aprender y descubir nuevas cosa.🦋
-<br>Actualmente soy estudiante de Tecnología de la información y ya casi finalizando mi primera carrera como estudiante de TI. 👨🏻‍💻
+<br>Actualmente soy estudiante y ya casi finalizando mi primera carrera como estudiante de TI. 👨🏻‍💻
 <br> Me gusta la natacion, leer, pasar tiempo con seres queridos y amigos😊
 
 ## 🌐 Socials:
